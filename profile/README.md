@@ -19,7 +19,7 @@ Afyia brings you high-quality, Palestinian organic products that connect you wit
 
 ## Connect with Us
 
-- **Email:** [afyia30@gmail.com](mailto:afyia30@gmail.com)
+- **Email:** [info@afyia.online](mailto:info@afyia.online)
 - **Visit Us:** [Instagram](https://www.instagram.com/afyia.store) | [Facebook](https://www.facebook.com/afyia.store)
 
 
